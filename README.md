@@ -1,0 +1,1 @@
+# Tugas_P6_Machine_Learning_Daffa_Rizqi_Wandika_232310024
